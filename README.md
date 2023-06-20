@@ -1,5 +1,5 @@
-# Rohini Kumar Barla (Education Engineer)
-rohinibarla@enhance42.com | 9492235028
+# Rohini Kumar Barla
+##### Education Engineer | rohinibarla@enhance42.com | 9492235028
 
 ### Profile
 
